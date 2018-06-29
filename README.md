@@ -9,3 +9,5 @@ Hema Endüstri firmasında ilk stajım boyunca benden istenen yerelde çalışac
 İkinci stajımın sonunda projeyi tamamladım ve şirketin sunucusuna yükleyerek çalışır hale getirdim.
 
 Staj boyunca yaptığım tüm işlerin günlük olarak anlatımını detaylı anlatım adlı dosyada görebilirsiniz.
+
+![](https://2.bp.blogspot.com/-MPV8I4VV1VQ/WzYGvMbHnHI/AAAAAAAACnU/QKsnebeVeKQRzp8QdHJ6h5UgwU133rAQQCLcBGAs/s1600/12.jpg)
